@@ -1,4 +1,4 @@
-# Sakura School Simulator Mod APK Lastest Version Menu Download Free For Android
+# Sakura School Simulator Mod APK Lastest Version Menu Free Download For Android
 
 ### What is Sakura School Simulator?
 
